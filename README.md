@@ -3,3 +3,4 @@
 ⚝-𝐂𝐞𝐥𝐞𝐬𝐭𝐢𝐚𝐥 ; 𝐂𝐞𝐥𝐞𝐬𝐭𝐞 ; 𝐑𝐨𝐱 ; 𝐀𝐛𝐬𝐨𝐥｡
 ˚🍰-01-11｡
 ✦-地元のアブソル｡
+<img width="1073" height="1063" alt="Sans titre 73_20250704103421" src="https://github.com/user-attachments/assets/45c297b9-bd35-4326-80d9-12915625a2b8" />
